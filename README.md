@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me just dm me
 - 😄 Pronouns: He/Her
-- ⚡ Fun fact: #Lovecars
+- ⚡ Fun fact: #Lovecars #LoveAnime
 
 <!---
 TTVRyosuke/TTVRyosuke is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
